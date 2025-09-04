@@ -1,1 +1,0 @@
-# temel-guvenlik-isaretleri
